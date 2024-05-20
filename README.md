@@ -1,6 +1,4 @@
-### Hi there 👋
-
-<!--
+### I'm Audrey Shifflett I'm a sophomore at Grand Blanc High School. I'm on my high school pom team and I also dance at DeCamp's Spotlight School of Dance. I plan on attanding college after high school and studing to become a engineer, I am currently taking AP Computer Science Principles. You can contact me at audreyshifflett309@gmail.com
 **audreyshifflett09/audreyshifflett09** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
