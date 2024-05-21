@@ -1,5 +1,6 @@
 #### Audrey Shifflett 
-##
+##  phone 810-445-6160
+
 
 
 -  I’m currently taking AP Computer Science Principles and after High School I plan to go to college and study to become a software engineer
