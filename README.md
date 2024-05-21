@@ -10,8 +10,8 @@
 
 ## Sports 
 -  I’m on my high school pom team GBVP and we do a lot of different activites in the community and we also compete regionally and nationally teaching me the importance of teamwork and leadership throughout my team and community.
--  I dance competitively at DeCamp's Spotlight School of Dance where we compete both regionally and nationally as well as performing at our showcase in febuary and our spring concert which teaches me the importance of dedication and determination.
--  My pom team made semifinals in both Gameday and Hip Hop which was the first time in Grand Blanc schools history that the team has made semifinals.
+-  I dance competitively at DeCamp's Spotlight School of Dance where we compete both regionally and nationally as well as performing at our showcase in February and our spring concert which teaches me the importance of dedication and determination.
+-  My pom team made semifinals in both Gameday and Hip Hop which was the first time in Grand Blanc Schools history that the team has made semifinals.
 -  I am ID dance National Champion for my dance studio.
 -  I am a top overall category winner for my solo this year.
 
